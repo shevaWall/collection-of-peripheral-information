@@ -1,0 +1,1 @@
+# collection-of-peripheral-information
